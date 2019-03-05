@@ -1,1 +1,1 @@
-tak zupelnie cokolwiek drugi
+totalnie zupelnie cokolwiek drugi
